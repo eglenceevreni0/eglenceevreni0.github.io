@@ -1,2 +1,3 @@
 # eglenceevreni0.github.io
-This is for my android Apps
+eglenceevreni1@gmail.com
+eglenceevreni1.wixsite.com/eglenceevreni
